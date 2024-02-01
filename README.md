@@ -1,10 +1,10 @@
-- 👋 Hi, I’m @kyky346
-- 👀 I’m interested in gurls
-- 🌱 I’m currently learning idk 
-- 💞️ I’m looking to collaborate on idk too
-- 📫 How to reach me : brazil lol
-- 😄 Pronouns: no one
-- ⚡ Fun fact: no one xD
+- 👋 Hi, I’m taekyun
+- 👀 I’m interested in make friends
+- 🌱 I’m currently learning medicine!
+- 💞️ I’m looking to collaborate: nothing 
+- 📫 How to reach me : brazil 
+- 😄 Pronouns: any pronouns
+- ⚡ Fun fact: idk
   
 
 <!---
